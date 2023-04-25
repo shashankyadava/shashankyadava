@@ -1,4 +1,4 @@
-[![MasterHead](https://dribbble.com/shots/17406958-Lantern.gif)]
+[![MasterHead](https://tenor.com/view/coding-gif-18657810)]
 
 <h1 align="center">Hi 👋, I'm Shashank Yadav(sky)</h1>
 <h3 align="center">Looking to learn new things everyday.</h3>
