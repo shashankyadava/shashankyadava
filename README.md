@@ -1,4 +1,4 @@
-[![MasterHead](https://dribbble.com/sky082000/collections/6509591-cat)]](https://dribbble.com/shots/17406958-Lantern)]
+[![MasterHead](https://dribbble.com/shots/17406958-Lantern)]
 
 <h1 align="center">Hi 👋, I'm Shashank Yadav(sky)</h1>
 <h3 align="center">Looking to learn new things everyday.</h3>
